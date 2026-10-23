@@ -5,7 +5,7 @@ A passionate 3rd-year Information Technology student | UI/UX Enthusiast | Full-S
 
 # 👨‍💻 Hita Pradipta Heroestyo
 
-🎓 **3rd Year Information Technology Student** at Telkom University, Bandung  
+🎓 **Fresh Graduate Information Technology Student** From Telkom University, Bandung  
 📍 Bandung, Indonesia | 🌍 Open to collaboration & opportunities  
 📧 hitapradipta12@gmail.com | 📱 +62 821-2598-6950  
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-Hita_Pradipta-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/hitapradipta)  
